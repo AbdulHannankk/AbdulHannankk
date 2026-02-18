@@ -1,5 +1,5 @@
 💫 Hi 👋, I'm Abdul Hannan
-**A passionate Cloud Engineer || 💻 Data Science & AI learner | Python enthusiast | Turning data into insights 🚀 || Kafka Admin from pakistan
+**A passionate Cloud Engineer || 💻 Data Science & AI learner | Python enthusiast | Turning data into insights 🚀 ||  Admin from pakistan
 
 Email Me 👉 ✉️ **Abdulhannankk200@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
